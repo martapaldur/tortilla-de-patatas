@@ -3,7 +3,7 @@ La mejor tortilla de patatass del mundo
 
 ## Ingredientes:
 - patatas
-- Sin cebollar
+harina de garbanzo
 - ovos
 
 ## Preparación
